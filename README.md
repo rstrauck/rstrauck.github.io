@@ -1,1 +1,5 @@
-# rstrauck at github.io
+https://www.linkedin.com/in/raimund-strauck/
+
+https://twitter.com/rstrauck
+
+
